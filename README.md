@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on all programming languages
 - 📫 How to reach me:
 Instagram: @erico_world,  
-youtube-channel: erico_world,  
+youtube-channel: erico_world_,  
 Facebook-page: @erico_world,  
 Gmail: chiamonwueric@gmail.com
